@@ -1,0 +1,1 @@
+templatemo_526_vanilla
